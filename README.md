@@ -44,7 +44,7 @@ The website includes:
 
 ## Author
 
-**Name:** *Your Name*
+**Name:** Natalie Joy D. Veluz
 
 ---
 
